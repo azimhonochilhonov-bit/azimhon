@@ -1,0 +1,2 @@
+# azimhon
+salom men yangiman
